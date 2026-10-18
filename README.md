@@ -1,8 +1,6 @@
-# ✨**某不科学の星璃sama**
+# **星璃如晤**
 
-## ✨KirariNeko✨
-
-
+> KirariNeko
 
 ---
 
